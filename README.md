@@ -3,7 +3,7 @@
 
 - 📫 How to reach me **shirefy49@gmail.com**
 
-- 📄 My resume [https://drive.google.com/file/d/1_dsVzl1jzW91ZpAr9S4Sr3ZgyGfvvSx_/view?usp=sharing](https://drive.google.com/file/d/1_dsVzl1jzW91ZpAr9S4Sr3ZgyGfvvSx_/view?usp=sharing)
+- 📄 My resume [https://drive.google.com/file/d/1-eyItyfeawOO2bvpcEp84isXIwpdbYWo/view?usp=share_link](https://drive.google.com/file/d/1-eyItyfeawOO2bvpcEp84isXIwpdbYWo/view?usp=share_link)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
